@@ -1,4 +1,4 @@
-FOR DOWNLOAD CLICK HERE (RELEASES) ----------------------------------------->
+FOR DOWNLOAD CLICK HERE (RELEASES) ------------------------------------->
 
 
 Fury_KMS_Activator for Windows and MS Office
